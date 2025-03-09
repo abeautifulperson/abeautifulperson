@@ -6,7 +6,7 @@ freaky queer. ask about my identity. i will give you answers (on mogaiblr)
 
 my ship and sys stances are non of yer business
 
-F/Os: Scag (Regretevator), SCP-343, SCP-015
+F/Os: Scag (Regretevator), SCP-343, SCP-015, Quinn (Flipline Studios)
 
 Don't try to change my identity. You know absolutely nothing about my identity and why I use the terminology I use. 
 

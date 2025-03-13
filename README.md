@@ -6,7 +6,10 @@ freaky queer. ask about my identity. i will give you answers (on mogaiblr)
 
 my ship and sys stances are non of yer business
 
-F/Os: Scag (Regretevator), SCP-343, SCP-015, Quinn (Flipline Studios)
+F/Os: Scag (Regretevator, semisharing but open for ships), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships)
+Fav. Ships: Scag x Barb/Reddy (robot kissing)/Mannequin Mark/Clover, Spy x Soldier, Pyro x Scout, any ship with Engineer in it, Kondraki x Gears, SCP 106 x SCP 913, SCP 056 x SCP 343/106.
+note: i dont really like protoscag or pestscag sorryyyy. 
+note: IM BIG INTO RAREPAIRS TALK TO ME ABOUT RAREPAIRS
 
 Don't try to change my identity. You know absolutely nothing about my identity and why I use the terminology I use. 
 

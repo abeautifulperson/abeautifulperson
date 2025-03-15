@@ -1,4 +1,5 @@
 ### DNI active Twitter users (serious) (unless friends)
+## DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM DEMIPLATONIC. IT MAKES ME VERY UNCOMFORTABLE.
 
 Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, My Little Pony and **Futret**. 
 

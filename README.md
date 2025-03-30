@@ -1,10 +1,6 @@
 ### DNI active Twitter users (serious) (unless friends)
 ## DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM DEMIPLATONIC. IT MAKES ME VERY UNCOMFORTABLE.
-<style>
-body {
-  color: red;
-}
-</style>
+
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>
 
 Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, My Little Pony and **Futret**. 
@@ -20,6 +16,8 @@ my ship and sys stances are non of yer business
 note: i dont really like protoscag or pestscag sorryyyy. 
 <br>
 note: IM BIG INTO RAREPAIRS TALK TO ME ABOUT RAREPAIRS
+<br>
+note (again): i also like coding. <a href="https://entomology.neocities.org">check out my neocities!</a>
 
 Don't try to change my identity. You know absolutely nothing about my identity and why I use the terminology I use. 
 

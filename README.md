@@ -1,7 +1,13 @@
 ### DNI active Twitter users (serious) (unless friends)
 ## DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM DEMIPLATONIC. IT MAKES ME VERY UNCOMFORTABLE.
+<style>
+body {
+  color: red;
+}
+</style>
+Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>
 
-Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, My Little Pony and **Futret**. 
+Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, My Little Pony and **Futret**. 
 
 freaky queer. ask about my identity. i will give you answers (on mogaiblr)
 
@@ -9,7 +15,7 @@ my ship and sys stances are non of yer business
 
 **F/Os:** Scag (Regretevator, semisharing but open for ships), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships)
 <br>
-**Fav. Ships:** Scag x Barb / Reddy / Mannequin Mark / Clover, Spy x Soldier, Pyro x Scout, any ship with Engineer in it, Kondraki x Gears, SCP 106 x SCP 913, SCP 056 x SCP 343/106.
+**Fav. Ships:** Scag x Barb / Reddy / Mannequin Mark / Clover, Spy x Soldier, Pyro x Scout, any ship with Engineer in it, Kondraki x Gears, SCP 106 x SCP 913, SCP 056 x SCP 343/106, Poppy x Looey, Shrimpo x My OC (Jubi)
 <br>
 note: i dont really like protoscag or pestscag sorryyyy. 
 <br>

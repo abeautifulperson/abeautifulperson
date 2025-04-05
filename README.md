@@ -9,9 +9,9 @@ freaky queer. ask about my identity. i will give you answers (on mogaiblr)
 
 my ship and sys stances are non of yer business
 
-**F/Os:** Scag (Regretevator, semisharing but open for ships), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships)
+**F/Os:** Scag (Regretevator, semisharing but open for ships), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships), Shrimpo
 <br>
-**Fav. Ships:** Scag x Barb / Reddy / Mannequin Mark / Clover, Spy x Soldier, Pyro x Scout, any ship with Engineer in it, Kondraki x Gears, SCP 106 x SCP 913, SCP 056 x SCP 343/106, Poppy x Looey, Shrimpo x My OC (Jubi)
+**Fav. Ships:** Scag x Barb / Reddy / Mannequin Mark / Clover, Spy x Soldier, Pyro x Scout, any ship with Engineer in it, Kondraki x Gears, SCP 106 x SCP 913, SCP 056 x SCP 343/106, Poppy x Looey, Shrimpo x My OC (Jubi)/Rodger, Tisha x Brightney
 <br>
 note: i dont really like protoscag or pestscag sorryyyy. 
 <br>

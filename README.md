@@ -1,6 +1,6 @@
 Warning: Flashing imagery, reclaimed slurs
 ### DNI active Twitter users (serious) (unless friends)
-## DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM DEMIPLATONIC. IT MAKES ME VERY UNCOMFORTABLE.
+## DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY.
 ***
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>
 
@@ -14,7 +14,10 @@ I don't want any darkshippers putting their ships in my face. please.
 
 **F/Os:** Scag (Regretevator, semisharing but open for ships), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships), Shrimpo
 <br>
-**Fav. Ships:** Scag x Barb / Reddy / Mannequin Mark / Clover, Spy x Soldier, Pyro x Scout, any ship with Engineer in it, Kondraki x Gears, SCP 106 x SCP 913, SCP 056 x SCP 343/106, Poppy x Looey, Shrimpo x My OC (Jubi)/Rodger, Tisha x Brightney, Sprout x Ginger. Feel free to talk about rarepairs with me. Especially if they're from Dandy's World or SCP!
+<b>Fav. Ships:</b>
+Me x Scag, Yatta x Dandy, Yatta x Shrimpo, Ginger x Shrimpo, Dandy x Rodger, like any Yatta ship, Glisten x Teagan, Teagan x Dandy (yuri), like any rarepair out there. heh
+
+Feel free to talk about rarepairs with me. Especially if they're from Dandy's World or SCP!
 <br>
 **Headcanons:** AroAce T-Man Sprout, Lesbian & Intersex (PCOS) Ginger, Transgender (unspecified) Shrimpo, T-girl Toodles, Drag Queen Teagan, T-woman SCP-2396, Homoflexible & ASPD SCP-106, Straight Ally SCP-343, and MANY others. Feel free to share yours with me!
 <br>

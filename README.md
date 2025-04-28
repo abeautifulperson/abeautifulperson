@@ -13,7 +13,7 @@ Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favori
 
 **Stances:** most of them are none of your business. get out of my lawn. and dont shove darkships in my face. syscourse is stupid. i dont like radqu!eers. if you make suggestive characters in the safe server i hate you. none of you are funny. have your own fun idc *starts playing with my touys*.
 <br>
-**Favorite characters EVER:** Scag, Barb, Eggson, Goob, Brightney (diva), Shrimpo, Dr. Alto Clef, SCP 993, SCP 343, SCP 3114, SCP 106, SCP 2396, SCP 913, SCP 056, all my F/Os basically, Sarge Fan (he looks so stupid but its ok i like him), Soldier (whats up with me and military-related characters).
+**Favorite characters EVER:** Scag, Barb, Eggson, Goob, Brightney (diva), Shrimpo, Dr. Iceberg, SCP 993, SCP 343, SCP 3114, SCP 106, SCP 2396, SCP 913, SCP 056, all my F/Os basically, Sarge Fan (he looks so stupid but its ok i like him), Soldier (whats up with me and military-related characters), Medic.
 
 ^ in no order btw
 <br>

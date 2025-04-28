@@ -6,15 +6,18 @@ Warning: Flashing imagery, reclaimed slurs
 ***
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a>
 
-Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, My Little Pony and **Futret**. 
+Hellooooo... My name is Francis, Funbus or Astrid or Scaglover9001. I'm a minor, usual minor boundaries or something BE NORMAL!!!!!!!!... I think it's pretty obvious I am autistic but ALSO I lack empathy most of the time. I don't know how to communicate normally sorryyyyyyyyyyy SORRY if i sound mean i do NOT mean it i just suck at tones.im unprofessional......
 
-world's worst lesboy
+Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, **My Little Pony: Friendship Is Magic¹** and **Futret**. 
+1. its all futret's fault i swear
 
-my ship and sys stances are non of yer business
+**Stances:** most of them are none of your business. get out of my lawn. and dont shove darkships in my face. syscourse is stupid. i dont like radqu!eers. if you make suggestive characters in the safe server i hate you. none of you are funny. have your own fun idc *starts playing with my touys*.
+<br>
+**Favorite characters EVER:** Scag, Barb, Eggson, Goob, Brightney (diva), Shrimpo, Dr. Alto Clef, SCP 993, SCP 343, SCP 3114, SCP 106, SCP 2396, SCP 913, SCP 056, all my F/Os basically, Sarge Fan (he looks so stupid but its ok i like him), Soldier (whats up with me and military-related characters).
 
-I don't want any darkshippers putting their ships in my face. please. 
-
-**F/Os:** Scag (Regretevator, semisharing but open for ships), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships).
+^ in no order btw
+<br>
+**F/Os:** Scag (Regretevator, semisharing but no ships pls), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships).
 <br>
 <b>Fav. Ships:</b>
 **Eggson x Vee**, Me x Scag, Yatta x Dandy, Yatta x Shrimpo, Ginger x Shrimpo, Dandy x Rodger, like any Yatta ship, Glisten x Teagan, Teagan x Dandy (yuri), like any rarepair out there. heh

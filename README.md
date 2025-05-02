@@ -2,7 +2,7 @@
 
 Warning: Flashing imagery, reclaimed slurs
 ### DNI active Twitter users (serious) (unless friends)
-## DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY.
+#### DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY. I barely friend back ok. unless ur cool ok. ehhahahahhaahahha
 ***
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a>
 

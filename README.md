@@ -2,7 +2,7 @@
 <h2 align="center">~ 🥚 x 🎤 ~</h2>
 
 Warning: Flashing imagery, reclaimed slurs
-### DNI active Twitter users (serious) (unless friends)
+### DNI brainrotted twitter users and people who unironically call it X. (UNLESS FRIEND)
 #### DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY. I barely friend back ok. unless ur cool ok. ehhahahahhaahahha
 ***
 
@@ -19,7 +19,7 @@ Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favori
 
 ^ in no order btw
 <br>
-**F/Os:** Scag (Regretevator, semisharing but no ships pls), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships).
+**F/Os:** Scag (Regretevator, semisharing but no ships pls), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships), Bobette (Dandy's World, no ships unless my oc x canon [Flipong x Bobette] and non-sharing).
 <br>
 <b>Fav. Ships:</b>
 **Eggson x Vee**, Me x Scag, Yatta x Dandy, Yatta x Shrimpo, Ginger x Shrimpo, Dandy x Rodger, like any Yatta ship, Glisten x Teagan, Teagan x Dandy (yuri), like any rarepair out there. heh

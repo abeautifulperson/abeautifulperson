@@ -1,9 +1,11 @@
+
 <h2 align="center">~ 🥚 x 🎤 ~</h2>
 
 Warning: Flashing imagery, reclaimed slurs
 ### DNI active Twitter users (serious) (unless friends)
 #### DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY. I barely friend back ok. unless ur cool ok. ehhahahahhaahahha
 ***
+
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a>
 
 Hellooooo... My name is Francis, Funbus or Astrid or Scaglover9001. I'm a minor, usual minor boundaries or something BE NORMAL!!!!!!!!... I think it's pretty obvious I am autistic but ALSO I lack empathy most of the time. I don't know how to communicate normally sorryyyyyyyyyyy SORRY if i sound mean i do NOT mean it i just suck at tones.im unprofessional......
@@ -21,6 +23,8 @@ Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favori
 <br>
 <b>Fav. Ships:</b>
 **Eggson x Vee**, Me x Scag, Yatta x Dandy, Yatta x Shrimpo, Ginger x Shrimpo, Dandy x Rodger, like any Yatta ship, Glisten x Teagan, Teagan x Dandy (yuri), like any rarepair out there. heh
+
+FAVORITE ALBUM: ![Static Badge](https://img.shields.io/badge/Futret's_Bangin'_Ginga_Midi-Monogatari-yellow)
 
 Feel free to talk about rarepairs with me. Especially if they're from Dandy's World or SCP!
 <br>

@@ -3,7 +3,7 @@
 
 Warning: Flashing imagery, reclaimed slurs
 ### DNI brainrotted twitter users and people who unironically call it X. (UNLESS FRIEND)
-### DNI people who support Qwelver (Dandy's World creator)
+### DNI people who support Qwelver (Dandy's World creator) (does not apply to people who only support blushcrunch)
 #### DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY. I barely friend back ok. unless ur cool ok. ehhahahahhaahahha
 ***
 

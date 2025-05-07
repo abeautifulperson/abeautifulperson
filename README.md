@@ -6,8 +6,9 @@ Warning: Flashing imagery, reclaimed slurs
 ### DNI people who support Qwelver (Dandy's World creator) (does not apply to people who only support blushcrunch)
 #### DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY. I barely friend back ok. unless ur cool ok. ehhahahahhaahahha
 ***
+##### SEND ME STUFF ON MY TUMBLR ASKS IF YOU CAN HEHEHHEHHEHEHEHEHEHE :3c
 
-Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a>
+Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a> <a href="https://www.tumblr.com/thescaryhyperfem/782481762357051392/my-new-oc-hi-note-shes-classified-as-r-009?source=share">Flipong, the Teddy Bear</a>
 
 Hellooooo... My name is Francis, Funbus or Astrid or Scaglover9001. I'm a minor, usual minor boundaries or something BE NORMAL!!!!!!!!... I think it's pretty obvious I am autistic but ALSO I lack empathy most of the time. I don't know how to communicate normally sorryyyyyyyyyyy SORRY if i sound mean i do NOT mean it i just suck at tones.im unprofessional......
 

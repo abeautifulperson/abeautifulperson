@@ -8,12 +8,13 @@ Warning: Flashing imagery, reclaimed slurs
 ***
 ##### SEND ME STUFF ON MY TUMBLR ASKS IF YOU CAN HEHEHHEHHEHEHEHEHEHE :3c
 
+meanings of things that occasionally will be in my name: C+H - Cuddles + Hiding; DNIUCP - Do Not Interact Unless Cool People; DNIIP - Do Not Interact (I'm Picky); DNIUF - Do Not Interact Unless Friend.
+
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a> <a href="https://www.tumblr.com/thescaryhyperfem/782481762357051392/my-new-oc-hi-note-shes-classified-as-r-009?source=share">Flipong, the Teddy Bear</a>
 
 Hellooooo... My name is Francis, Funbus or Astrid or Scaglover9001. I'm a minor, usual minor boundaries or something BE NORMAL!!!!!!!!... I think it's pretty obvious I am autistic but ALSO I lack empathy most of the time. I don't know how to communicate normally sorryyyyyyyyyyy SORRY if i sound mean i do NOT mean it i just suck at tones.im unprofessional......
 
-Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, **My Little Pony: Friendship Is Magic¹** and **Futret**. 
-1. its all futret's fault i swear
+Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, **My Little Pony: Friendship Is Magic**, **The Problem Solverz** and **Futret**. 
 
 **Stances:** most of them are none of your business. get out of my lawn. and dont shove darkships in my face. syscourse is stupid. i dont like radqu!eers. if you make suggestive characters in the safe server i hate you. none of you are funny. have your own fun idc *starts playing with my touys*.
 <br>

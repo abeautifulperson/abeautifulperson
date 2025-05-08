@@ -1,9 +1,10 @@
 
-<h2 align="center">~ 🥚 x 🎤 ~</h2>
+<h2 align="center">like seriously what s an aesthetic</h2>
 
 Warning: Flashing imagery, reclaimed slurs
 ### DNI brainrotted twitter users and people who unironically call it X. (UNLESS FRIEND)
 ### DNI people who support Qwelver (Dandy's World creator) (does not apply to people who only support blushcrunch)
+### DNI people who are sooooooooo lame like sooooooooooooooooooooooooo so so lame
 #### DO NOT TRY TO FRIEND ME OUT OF THE BLUE. I AM PICKY. I barely friend back ok. unless ur cool ok. ehhahahahhaahahha
 ***
 ##### SEND ME STUFF ON MY TUMBLR ASKS IF YOU CAN HEHEHHEHHEHEHEHEHEHE :3c

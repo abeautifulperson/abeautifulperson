@@ -13,6 +13,8 @@ meanings of things that occasionally will be in my name: C+H - Cuddles + Hiding;
 
 Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a> <a href="https://www.tumblr.com/thescaryhyperfem/782481762357051392/my-new-oc-hi-note-shes-classified-as-r-009?source=share">Flipong, the Teddy Bear</a>
 
+<a href="https://eggvision.straw.page/">Straw Page of Ships </a>
+
 Hellooooo... My name is Francis, Funbus or Astrid or Scaglover9001. I'm a minor, usual minor boundaries or something BE NORMAL!!!!!!!!... I think it's pretty obvious I am autistic but ALSO I lack empathy most of the time. I don't know how to communicate normally sorryyyyyyyyyyy SORRY if i sound mean i do NOT mean it i just suck at tones.im unprofessional......
 
 Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favorite Martian, **Lapfox Trax/Halley Labs**, Nyan Cat, **SCP**, PikuNiku, **Flipline Studios**, Bear Brotherhood, Insane Clown Posse, **Regretevator**, **Dandy's World**, **My Little Pony: Friendship Is Magic**, **The Problem Solverz** and **Futret**. 

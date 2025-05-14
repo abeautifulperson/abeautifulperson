@@ -21,14 +21,14 @@ Hyperfixations / Fandoms / Etc: Dave and Bambi, **Team Fortress 2**, Your Favori
 
 **Stances:** most of them are none of your business. get out of my lawn. and dont shove darkships in my face. syscourse is stupid. i dont like radqu!eers. if you make suggestive characters in the safe server i hate you. none of you are funny. have your own fun idc *starts playing with my touys*.
 <br>
-**Favorite characters EVER:** Scag, Barb, Bobette, Eggson, Goob, Brightney (diva), Shrimpo, Dr. Iceberg, SCP 993, SCP 343, SCP 3114, SCP 106, SCP 2396, SCP 913, SCP 056, all my F/Os basically, Sarge Fan (he looks so stupid but its ok i like him), Soldier (whats up with me and military-related characters), Medic.
+**Favorite characters EVER:** Scag, Sprout, Bobette, Eggson, Engineer, Roba.
 
 ^ in no order btw
 <br>
-**F/Os:** Scag (Regretevator, semisharing but no ships pls), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships), Bobette (Dandy's World, no ships unless my oc x canon [Flipong x Bobette] and non-sharing).
+**F/Os:** Scag (Regretevator, semisharing but no ships pls), Barb (Regretevator, not really a f/o), SCP-343, SCP-015, Quinn (Flipline Studios, sharing & open for ships), Bobette (Dandy's World, no ships unless my oc x canon [Flipong x Bobette] and non-sharing), Sir Wastemonsieur (SCP Oc, non-sharing but I do allow ships).
 <br>
 <b>Fav. Ships:</b>
-**Eggson x Vee**, Me x Scag, Yatta x Dandy, Yatta x Shrimpo, Ginger x Shrimpo, Dandy x Rodger, like any Yatta ship, Glisten x Teagan, Teagan x Dandy (yuri), like any rarepair out there. heh
+**Eggson x Vee**, Me x Scag, Sprout x Boxten, Sprout x Cosmo (i am not one of those fruitcake shippers i swear!!!!!!), Sprout x Cosmo (but make it polyamorous), uhmmmmmmmmmmmmmmm idk!!!!!!!!!!!!!!!! any non-darkships
 
 FAVORITE ALBUM: ![Static Badge](https://img.shields.io/badge/Futret's_Bangin'_Ginga_Midi-Monogatari-yellow)
 

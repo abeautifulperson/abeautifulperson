@@ -1,5 +1,5 @@
 
-<h2 align="center">like seriously what s an aesthetic</h2>
+<h2 align="center">like seriously what is an aesthetic</h2>
 
 Warning: Flashing imagery, reclaimed slurs
 ### DNI brainrotted twitter users and people who unironically call it X. (UNLESS FRIEND)
@@ -11,7 +11,7 @@ Warning: Flashing imagery, reclaimed slurs
 
 meanings of things that occasionally will be in my name: C+H - Cuddles + Hiding; DNIUCP - Do Not Interact Unless Cool People; DNIIP - Do Not Interact (I'm Picky); DNIUF - Do Not Interact Unless Friend.
 
-Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a> <a href="https://www.tumblr.com/thescaryhyperfem/782481762357051392/my-new-oc-hi-note-shes-classified-as-r-009?source=share">Flipong, the Teddy Bear</a>
+Read about my OCs: <a href="https://www.tumblr.com/thescaryhyperfem/779320458304716800/jubi-the-gummy-bear-theyit-pt-jubi-the?source=share">Jubi, the Gummy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/781548570890436608/new-oc-idc-if-anybodys-doen-this-before-go-my?source=share">Val, the Valve</a>, <a href="https://www.tumblr.com/thescaryhyperfem/780842974793859072/my-new-dandys-world-oc-uhhhhh-thing-i-hope-you?source=share">Troy, the Superhero Figurine</a>, <a href="https://www.tumblr.com/thescaryhyperfem/782481762357051392/my-new-oc-hi-note-shes-classified-as-r-009?source=share">Flipong, the Teddy Bear</a>, <a href="https://www.tumblr.com/thescaryhyperfem/784025725285138432/new-ocs-teehee-3-note-jack-is-a-bright-toon?source=share">Nate, the Macaw</a>, <a href="https://www.tumblr.com/thescaryhyperfem/784025725285138432/new-ocs-teehee-3-note-jack-is-a-bright-toon?source=share">Jack, the Pumpkin</a>, <a href="https://www.tumblr.com/thescaryhyperfem/784116698646216704/autism-in-order-from-top-to-bottom-common?source=share">Marshall, the Marshmallow </a>, <a href="https://www.tumblr.com/thescaryhyperfem/784116698646216704/autism-in-order-from-top-to-bottom-common?source=share">Sally, the Poltergeist </a>, <a href="https://www.tumblr.com/thescaryhyperfem/784116698646216704/autism-in-order-from-top-to-bottom-common?source=share"> Wanda, the Witch </a>
 
 <a href="https://eggvision.straw.page/">Straw Page of Ships </a>
 

@@ -8,6 +8,6 @@ eggvision eggvision. eggvision. ok? eggvision. expiredtech.eggradar .........dro
 #### <a href="https://eggvision.straw.page/">Click here to see my ships!</a>
 <hr>
 <b>What does the IWC/IWEC (interact with care/interact with extreme care) in my name mean?</b><br>
-IWC: Do not roleplay with me, make sexual jokes towards me, call me names, etc. Does <u>not</u> apply to friends and anybody close to me.
+IWC: Do not roleplay with me, make sexual jokes towards me, call me names, etc. Does <u>not</u> apply to friends and anybody close to me.<br>
 IWEC: All of the above, but now it does apply to friends and anybody close to me. 
 

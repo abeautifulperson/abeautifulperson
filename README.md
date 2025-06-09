@@ -4,8 +4,10 @@ basic info: Francis/Funbus/Astrid/Beau. it/its and xe/xem, as well as ze/zir and
 byi: i get attached way too easily. i may or may not crash out over you being annoying. i forget. i am selfcentered. i love myself (not really). im a weirdo  i think<br>
 dni: butterflycest shippers, darkshippers (unless you dont shove it in my face) (i still wont like you all that much.), yadda yadda bad people you get it.<br>
 i like every ship there is ok. except darkships i dont like those no i dont<br>
-eggvision eggvision. eggvision. ok? eggvision. expiredtech.eggradar .........drool.s. eggson x vee shipping cute. old man/woman yuri. they are not straight btw qwel told me WHO THE HAY HAS A HARMONICA IN CLASS.<br>
-#### <a href="https://eggvision.straw.page/">Click here to see my ships!</a>
+favorites: eggson scag eggson eggson alfe alfe alfe alfe alfe eggson flyte flyte **eggson** scag scag scag scp 106 lawrence oooooohhhh lawrence eggson<br>
+<br>
+
+## <a href="https://eggvision.straw.page/">Click here to see my ships!</a>
 <hr>
 <b>What does the IWC/IWEC (interact with care/interact with extreme care) in my name mean?</b><br>
 IWC: Do not roleplay with me, make sexual jokes towards me, call me names, etc. Does <u>not</u> apply to friends and anybody close to me.<br>
